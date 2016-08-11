@@ -1,0 +1,1 @@
+Krátká recenze o tomto kurzu. Je to dobrý, hurá budu něco novýho umět.
